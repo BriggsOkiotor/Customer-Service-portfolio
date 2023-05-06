@@ -1,5 +1,5 @@
 # Briggs Okiotor Portfolio
-THANKS FOR CHECKING OUT!!! Feel free to reach out to me. I would love to be at your service...
+THANKS FOR CHECKING OUT!!! Feel free to reach out to me. I love to be at your service...
 
 ***CUSTOMER SERVICE***
 
@@ -23,6 +23,4 @@ International standards excellence award for best the Customer Relationship Mana
 
 ![Two](https://user-images.githubusercontent.com/108902579/230496068-d6220ed2-dc94-4a30-90ad-27b2e1236e97.PNG)
 
-National Branding Innovators Award  for The most outstanding B2B technology solution brand of the year ***(NBIA 2022)***
-
-![Capture1](https://user-images.githubusercontent.com/108902579/235844797-ec5d5b40-f410-4ce2-93c3-fd0ea6ea40e1.PNG)
+## ***Thanks for checking out!!!***
